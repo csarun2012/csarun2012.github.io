@@ -1,1 +1,0 @@
-# tricemensopt.github.io
